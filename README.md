@@ -3,7 +3,7 @@
 ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)
 ㅤㅤ  ОСНОВНЫЕ ПРАВИЛА ВИРТУАЛЬНОГО ЗНАКОМСТВАㅤㅤ  ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)ㅤ
 ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤ![7268](https://github.com/user-attachments/assets/7cd8b2a9-9e8e-4962-8779-1fb4d2bf36ac)
+ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ![7268](https://github.com/user-attachments/assets/7cd8b2a9-9e8e-4962-8779-1fb4d2bf36ac)
 
 ![995906198](https://github.com/user-attachments/assets/9c596f30-6523-4d1e-9ca1-3f47e7011752)Правило первое: Не занимайтесь поиском идеально подходящего человека. Таких просто нет.
 
@@ -25,9 +25,9 @@
 
 ![433186821](https://github.com/user-attachments/assets/c4b474f0-92a0-45c8-92bc-a1f6dcb532b5)Правило десятое: Не бойтесь отказа, учитесь говорить «нет» и начинать заново.
 
-ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/2f29761b-1c42-49d1-9e37-4eb2987fc4c7)
+ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![animated-glitter-image-0382](https://github.com/user-attachments/assets/86f3facc-c298-45d2-9875-07bd64d846c8)
 
 P.S.
 Помните: если в качестве партнера человек вам не подошел, возможно он подойдет в качестве друга...  
 
-ㅤㅤㅤㅤ            ㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤ ㅤㅤ ![animated-glitter-image-0382](https://github.com/user-attachments/assets/86f3facc-c298-45d2-9875-07bd64d846c8)
+ㅤㅤㅤㅤ            ㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/2f29761b-1c42-49d1-9e37-4eb2987fc4c7)
