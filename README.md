@@ -27,4 +27,4 @@
 P.S.
 Помните: если в качестве партнера человек вам не подошел, возможно он подойдет в качестве друга...
 
-ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7268](https://github.com/user-attachments/assets/7cd8b2a9-9e8e-4962-8779-1fb4d2bf36ac)
+ㅤㅤㅤㅤ            ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7268](https://github.com/user-attachments/assets/7cd8b2a9-9e8e-4962-8779-1fb4d2bf36ac)
