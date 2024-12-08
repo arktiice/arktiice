@@ -25,9 +25,9 @@
 
 ![433186821](https://github.com/user-attachments/assets/c4b474f0-92a0-45c8-92bc-a1f6dcb532b5)Правило десятое: Не бойтесь отказа, учитесь говорить «нет» и начинать заново.
 
-ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![animated-glitter-image-0382](https://github.com/user-attachments/assets/86f3facc-c298-45d2-9875-07bd64d846c8)
+ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/2f29761b-1c42-49d1-9e37-4eb2987fc4c7)
 
 P.S.
 Помните: если в качестве партнера человек вам не подошел, возможно он подойдет в качестве друга...  
 
-ㅤㅤㅤㅤ            ㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/2f29761b-1c42-49d1-9e37-4eb2987fc4c7)
+ㅤㅤㅤㅤ            ㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤㅤㅤ ㅤㅤ ![star-divider-png-2](https://github.com/user-attachments/assets/292218b6-ce4a-42aa-9be7-68ec6046fd6a)
