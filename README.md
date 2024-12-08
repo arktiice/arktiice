@@ -29,4 +29,4 @@
 
 P.S.
 Помните: если в качестве партнера человек вам не подошел, возможно он подойдет в качестве друга...  
-![star-divider-png-2](https://github.com/user-attachments/assets/292218b6-ce4a-42aa-9be7-68ec6046fd6a)
+![star-divider-png-2](https://github.com/user-attachments/assets/563a425c-67b2-4b22-87e0-7d022586f1f9)
