@@ -3,7 +3,6 @@
 ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)
 ㅤㅤ  ОСНОВНЫЕ ПРАВИЛА ВИРТУАЛЬНОГО ЗНАКОМСТВАㅤㅤ  ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)ㅤ
 ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
 ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤ     ㅤㅤㅤㅤㅤㅤ![7268](https://github.com/user-attachments/assets/7cd8b2a9-9e8e-4962-8779-1fb4d2bf36ac)
 
 ![995906198](https://github.com/user-attachments/assets/9c596f30-6523-4d1e-9ca1-3f47e7011752)Правило первое: Не занимайтесь поиском идеально подходящего человека. Таких просто нет.
