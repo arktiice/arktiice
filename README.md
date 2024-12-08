@@ -1,4 +1,4 @@
-![7160](https://github.com/user-attachments/assets/4e4d0b70-a264-41b2-b0f0-fbb67a6a53c7)![7160](https://github.com/user-attachments/assets/4e4d0b70-a264-41b2-b0f0-fbb67a6a53c7)
+![7160](https://github.com/user-attachments/assets/01052494-b91c-40b4-abd6-91608bc3f0de)![7160](https://github.com/user-attachments/assets/01052494-b91c-40b4-abd6-91608bc3f0de)
 
 ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  Основные правила виртуального знакомства...
 
@@ -22,4 +22,5 @@
 
 Правило десятое и последнее - Не бойтесь отказа, учитесь говорить "нет" и начинать заново.
 
-ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/6db4e115-eb2c-4e5c-9338-e560951cd61e)
+ㅤㅤㅤㅤ         ㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤ ![7159](https://github.com/user-attachments/assets/2f29761b-1c42-49d1-9e37-4eb2987fc4c7)
+
