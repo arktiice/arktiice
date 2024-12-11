@@ -1,7 +1,6 @@
 ![7160](https://github.com/user-attachments/assets/01052494-b91c-40b4-abd6-91608bc3f0de)![7160](https://github.com/user-attachments/assets/01052494-b91c-40b4-abd6-91608bc3f0de)
 
 ## ㅤㅤ ㅤㅤ ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)ㅤㅤ ОСНОВНЫЕ ПРАВИЛА ВИРТУАЛЬНОГО ЗНАКОМСТВАㅤㅤ ![439580txgwvv7pqj](https://github.com/user-attachments/assets/87c22433-5210-44f3-9eaa-fe849b611b34)ㅤ
-ㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤㅤㅤㅤ
 
 ![995906198](https://github.com/user-attachments/assets/9c596f30-6523-4d1e-9ca1-3f47e7011752)**Правило первое:** Не занимайтесь поиском идеально подходящего человека. Таких просто нет.
 
