@@ -29,4 +29,4 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=pidors)
+![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg)
