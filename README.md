@@ -29,5 +29,5 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=arktiice&color=E1D1DE&label=pidors)
+![](https://komarev.com/ghpvc/?username=arktiice&color=6DA6DB&label=pidors)
 
