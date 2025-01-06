@@ -26,3 +26,7 @@
 
   ㅤ      ㅤ    ㅤㅤP.S. Помните: если в качестве партнера человек вам не подошел, возможно он подойдет в качестве друга...  
 ![star-divider-png-2](https://github.com/user-attachments/assets/563a425c-67b2-4b22-87e0-7d022586f1f9)
+
+<p align="center"
+  
+![](https://komarev.com/ghpvc/?username=deviqnt&color=E1D1DE&label=pidors)
