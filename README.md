@@ -29,5 +29,5 @@
 
 <p align="center"
   
-![](https://komarev.com/ghpvc/?username=arktiice&color=8D2525&label=Ебанаты)
+![](https://komarev.com/ghpvc/?username=arktiice&color=8D2525&label=Eblans)
 
